@@ -25,7 +25,7 @@
 ---
 
 ### 📬 Контакты
-- ✉️ Email: [dorelen84@mail.com](mailto:dorelen84@mail.com)  
+- ✉️ Email: [dorelen84@gmail.com](mailto:dorelen84@gmail.com)  
 - 💬 Telegram: [@lena_doros](https://t.me/lena_doros)  
 
 ---
